@@ -2,4 +2,4 @@
 Домашние задания к курсу
 
 
-5743543575
+https://stepik.org/course/575/syllabus
